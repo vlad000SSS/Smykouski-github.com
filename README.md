@@ -1,2 +1,1 @@
-# Smykouski-github.com
-Smykouski-github.com
+# dimb12.github.io
